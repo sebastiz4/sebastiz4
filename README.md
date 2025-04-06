@@ -1,4 +1,4 @@
-## Soy muerdetanukis
+## Soy muerdetanukis :3 
 
 Ask me about integrals and circuits :D
 I'm looking for help with a life purpose and coding >__<
