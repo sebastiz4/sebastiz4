@@ -1,4 +1,7 @@
-## Hi there 👋
+## Soy muerdetanukis
+
+Ask me about integrals and circuits :D
+I'm looking for help with a life purpose and coding >__<
 
 <!--
 **sebastiz4/sebastiz4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
